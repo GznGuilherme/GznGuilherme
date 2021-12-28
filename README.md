@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GznGuilherme
+- 👀 I’m interested in learn new things
+- 🌱 I’m currently learning pawn
+- 💞️ I’m looking to collaborate on samp projects
+- 📫 How to reach me discord:Gzn#1274
